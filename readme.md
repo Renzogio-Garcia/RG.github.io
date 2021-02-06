@@ -1,6 +1,7 @@
 # This is a Blog, I think
 -------
 Why?
+
 If you knew me as I know myself, you would know that my relationship with writing has been a rocky one. While I took a liking to creative writing in my youth, assigned essays have taken away a lot of its joy, creating a phobia towards the activity. In terms of the skill, I consider myself a mediocre writer at best. Using words from Thesaurus.com in my essay like a fast food worker adding ice to add volume to a soda, my writing is often too verbose and awkward in a sad attempt to emulate a famous essayist. Then why is one so seemingly repelled by writing attempting to write a blog? Is it because it looks good on my resume? Kinda, but no. Is it because I want to be a better writer? Maybe, but not really. Why then?
 
 To find a voice. A voice of a human being who stumbles on his thoughts while speaking.  A voice crying out into cyberspace, knowing that only a handful, if any, will hear him shout his innermost thoughts. Maybe this blog will help me explore this voice and learn how to express it. Maybe not. But as I start this endeavour, I can nevertheless feel a certain urge. The same urge that pushes one to jubilate when happy,  to cry ugily when stricken with sorrow, to scream when pissed off. The same urge that one gets on cliffs and rooftops to yell at the top of their lungs. This instinct within is telling me to shout into the universe, to let it know that I exist and I am here.
